@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MLENeLu0513
 - 👀 I’m interested in getting hands on experience...
-- 🌱 I’m currently learning JavaScript...
+- 🌱 I’m currently looking for new opportunitys..-
 - 💞️ I’m looking to collaborate on some cool projects!
 - 📫 How to reach me ... https://www.linkedin.com/in/minna-lehtinen/ 
 
